@@ -75,7 +75,9 @@ Oby Sorrel                | 52.6%    | 22.49
 Rafaelita Blaksland       | 57.5%    | 25.02
 Wilone O'Kielt            | 53.9%    | 21.46
 
+Curtice Advani with a Profit % of 61.3% delivered the highest profit percentage.
 
+While Gunar Cockshoot with 28.83 delivered the highest sales per customer.
 
 
 Geo Sales Distribution
